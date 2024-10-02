@@ -1,1 +1,1 @@
-#### Enrolled in CS program at a non-professional university in China
+#### Enrolled in CS at a unknown quantity university in China
